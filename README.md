@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on . design de . estampas
+- 🔭 I’m currently working on . Design de Estampas
 - 🌱 I’m currently learning ... ux e ui DESIGN
 
 - 📫 How to reach me: .E- MAIL . rodrigotimmp2@gmail.com
