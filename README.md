@@ -1,4 +1,4 @@
-###hi everyone re 👋
+###hi everyone here 👋
 
 
 **timmp2/timmp2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
